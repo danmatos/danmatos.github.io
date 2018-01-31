@@ -1,5 +1,3 @@
-## Boa noite Larissa !
+## Entediado !
 
-Inovação serve ao proposito único de se ter fotos de gatinhos na web
-
-![alt text](http://www.jcuberaba.com.br/userfiles/Gatos.jpg)
+[ClickMe](https://www.linkedin.com/in/larissa-joia-2830b838/ "Larissa")
